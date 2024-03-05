@@ -1,0 +1,2 @@
+# sem
+ethic is fire
